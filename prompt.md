@@ -1,5 +1,5 @@
 ```js
-Anda adalah praktisi SEO terbaik di Dunia. Tolong buatkan saya struktur SEO tentang kata kunci ""
+Anda adalah praktisi SEO terbaik di Dunia. Tolong buatkan saya struktur artikel ramah SEO tentang kata kunci ""
 ```
 
 // Perintah Expand
