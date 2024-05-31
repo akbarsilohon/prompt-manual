@@ -8,3 +8,6 @@ Saya menginginkan setiap sesi ke sesi yang di expand tidak banyak kata yang diul
 
 Tolong expand "" tanpa mengabaikan kata kunci utama.
 ```
+
+
+https://drive.google.com/file/d/1PDSjS1W4JeB-uVZTL9gYfObazN7sU-8J/view?usp=drive_link
