@@ -1,30 +1,23 @@
-manfaat buah manggis
-manfaat es batu untuk wajah
-manfaat jus alpukat
-manfaat daun sirih cina
-manfaat air kelapa hijau
-manfaat air mawar
-manfaat belimbing wuluh
-manfaat daun sirih merah
-manfaat kopi hitam tanpa gula
-manfaat susu bear brand
-manfaat berjemur di pagi hari
-manfaat daun mint
-manfaat air beras untuk wajah
-manfaat akar alang alang
-manfaat akar bajakah
-manfaat anggur hijau
-manfaat asam folat
-manfaat buah kersen
-manfaat cincau hijau
-manfaat daun beluntas
-manfaat daun kersen
-manfaat kelapa bakar
-manfaat kelapa ijo
-manfaat kunyit untuk lambung
-manfaat kurma untuk ibu hamil
-manfaat lada
-manfaat mandi air garam
-manfaat vitamin b complex untuk wanita
-manfaat adem sari
-manfaat biji durian
+AIzaSyBvje1tJyGOyCfmV1DybWX7Y8m4X1XtJRM
+AIzaSyA6E_HPpvM9LUKAl15YmGyfJr8qHCxWIMM
+AIzaSyCwOq-Y_-f_A3lzjWPwyeRfYApUWSNyues
+AIzaSyDFSfOwpS36BW9_vyXje2LuOGgvtB1T6ww
+AIzaSyCp9xHDvdHlvs90g14_oNIALpWFzsNt304
+AIzaSyCYCoJdOgIuRlXGTZ6W6boL8ACzYvNRTpw
+AIzaSyCnbq2x9cwoopjDxqapCCIXYH6EUGn8874
+AIzaSyBtyRMPlt8e--El6aTnTBZ8px4IhT5Vlrk
+AIzaSyDyY3m80NA6iQlKOu4iEZo1Yf9c7r1gYzI
+AIzaSyAq_iF7rxBL0tKQm_d3-6QJXC6JnGZEQ2w
+AIzaSyCZSFKzBzFJV8p4LC_yxb6rvUrOobz-J8Y
+AIzaSyCAtYLGfxRn2fh-W-SW_t57NT0XdkywUT8
+AIzaSyB_XRzvsBuYYjnxF81k0msW7iRZfrzJ6DI
+AIzaSyArZUJ7bw3QeGDhoSkb0ye1Q6oRG1_0jSs
+AIzaSyDvvMBXG-tBFCnFQbb6qyrg_Ls4CV08YQQ
+AIzaSyBu4ocJQLQL-Hpzi-RBZBMaJ1PVtf7v3oY
+AIzaSyAcdVL-UjFzIR6vPF8sDxqctpiBcsaMJgg
+AIzaSyBydIs-w9xJgWYtFTt8AqNVX2jOsVvcnbE
+AIzaSyB0QdLEaZKLklEPZ0OMGXfHwAYfn-Ks7hc
+AIzaSyCeG8YINF3ND98HVaSzRCmRJ5RFhsT2y-Y
+AIzaSyAqx4LMtJvC1I1tuRBpmGUA0Q7SVrhuFCM
+AIzaSyBWCNl2-bUjXl7PJqaxRytAMbNw6dyL07I
+AIzaSyD-vBAl14urlZoDWm_RpA2zgjaNZ9upTds
